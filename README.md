@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Maimaixx
-- 👀 I’m interested in how to build more effective treatment and intervention plans.
+- 👀 I’m interested in how to enhance the intervention strategies in various psychological concerns.
 - 🌱 I’m currently learning clinical psychology.
 - ⚡ Fun fact: Pomu's hooman.
 
